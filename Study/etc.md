@@ -1,0 +1,1 @@
+https://blog.mathpresso.com/modern-frontend-infrastructure-overview-99b5a8c669df
